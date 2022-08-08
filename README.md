@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **1801016@iot.bdu.ac.bd**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1VKyedNWZbBTm4sJCApkjeosAN7bgtWRg/view?usp=sharing](https://drive.google.com/file/d/1VKyedNWZbBTm4sJCApkjeosAN7bgtWRg/view?usp=sharing)
+- 📄 Know about my experiences [https://bit.ly/3Qrm6cj](https://bit.ly/3Qrm6cj)
 
 - ⚡ Fun fact **I think I am funny.**
 
